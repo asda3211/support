@@ -22,7 +22,7 @@ The map rotation is a system NetherGames has in place to keep maps fresh and dif
 
 [Skywars](#skywars)
 
-[The Bridge](#the-bridge)
+[Nigger](#the-bridge)
 
 [Duels](#duels)
 
